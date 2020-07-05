@@ -8,4 +8,3 @@ Learn 61 keys keyboard along with me.
 ## Free online videos
 - Happy Birthday to you - https://www.youtube.com/watch?v=5nSdseM_aYY&list=RDUsEhP0tVAOc&index=7
 - Keys and Notes - Basics - https://www.youtube.com/watch?v=HaA3_PXx6Mo&list=RDUsEhP0tVAOc&index=14
-  - Print cheatsheet - 
