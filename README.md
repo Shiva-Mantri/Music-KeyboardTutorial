@@ -3,7 +3,7 @@ Learn 61 keys keyboard along with me.
 - Costco Keyboard: https://www.costco.com/pianos.html
 
 ## Course
-- Piano for All - https://www.udemy.com/course/pianoforall-incredible-new-way-to-learn-piano-keyboard/
+- Piano for All (Udemy) - https://www.udemy.com/course/pianoforall-incredible-new-way-to-learn-piano-keyboard/
 
 ## Free online videos
 - Happy Birthday to you - https://www.youtube.com/watch?v=5nSdseM_aYY&list=RDUsEhP0tVAOc&index=7
